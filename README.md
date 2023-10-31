@@ -1,4 +1,4 @@
-### bem vindo ao meu perfil 🍌  
+### bem vindo ao meu perfil 🧁  
 
 meu nome é Milena Julião Cardoso Martins
 
